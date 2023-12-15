@@ -1,0 +1,1 @@
+# Stockandcrypto-Analyser
